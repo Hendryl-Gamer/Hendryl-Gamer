@@ -3,7 +3,7 @@
 -     @neymar
 -     @lamineyamal
    ![NeyNeymarGIF (2)](https://github.com/user-attachments/assets/4d38c800-7dfb-44e5-b393-c00d7c6da14a)
-   ![YamalBarçaGIF](https://github.com/user-attachments/assets/840ed078-aa6e-4874-8ec4-3f0119f40b67)
+   ![LamineYamalCelebrationGIF](https://github.com/user-attachments/assets/29101c33-2321-47ef-ab70-a9f5bb7340b7)
 
 - 😄 
 - ⚡ 
